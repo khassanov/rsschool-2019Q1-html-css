@@ -1,2 +1,2 @@
 Nurlan Khassanov
-https://www.codecademy.com/nurlan.khassanov
+https://www.codecademy.com/users/nurlan.khassanov/achievements
